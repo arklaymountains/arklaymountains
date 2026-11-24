@@ -7,7 +7,7 @@
 [rent](https://rentry.co/haymitchsgeese)ry
 
 not to sound desperate but i really need friends bro PLEASE HMU</p>
-gay australian</p>
+i follow COOL PEOPEL!!!!!! </p>
 
 ![](https://64.media.tumblr.com/fbf2d33e22706835c2c00fe8cb25eac6/b8db69cc56eda7dc-9a/s100x200/64eae55dc299cb1ff1515da400b3045ff207f426.gifv)
 </p>
